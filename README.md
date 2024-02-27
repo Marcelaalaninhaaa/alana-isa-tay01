@@ -5,4 +5,5 @@ para aproveitar o tempo com eles. Irei santir muita saudade de todos, da minha r
 recreio. Tambem vou sentir falta da escola e dos professore. 
 
 "A amizade desenvolve a felicidade e reduz o sofrimento, duplicando a nossa alegria e dividindo a nossa dor." 🧑‍🎓 💟 🥇
+
 ![](https://tenor.com/pt-BR/view/dog-sleepy-studying-glasses-gif-15618692)
