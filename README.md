@@ -5,4 +5,4 @@ para aproveitar o tempo com eles. Irei santir muita saudade de todos, da minha r
 recreio. Tambem vou sentir falta da escola e dos professore. 
 
 "A amizade desenvolve a felicidade e reduz o sofrimento, duplicando a nossa alegria e dividindo a nossa dor." 🧑‍🎓 💟 🥇
-![](https://tenor.com/pt-BR/view/yaar-friendship-friends-forever-friend-hug-hug-gif-20926236)
+![](https://media1.tenor.com/m/pOdZ2iznmFcAAAAd/yaar-friendship.gif)
